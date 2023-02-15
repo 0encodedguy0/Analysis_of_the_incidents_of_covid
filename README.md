@@ -1,0 +1,1 @@
+# Analysis_of_the_incidents_of_covid
